@@ -28,4 +28,6 @@ It is important to acknowledge the risks involved in participating in such marke
 
 
 
-Update: Route fixes
+
+
+Update:  21.06.2025 08:50:47 url is active again

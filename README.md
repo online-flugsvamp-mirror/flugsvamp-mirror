@@ -32,4 +32,6 @@ It is important to acknowledge the risks involved in participating in such marke
 
 
 
-Update: Link is now working and available
+
+
+Update: Link is now responsive and active

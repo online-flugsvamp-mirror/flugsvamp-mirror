@@ -34,4 +34,6 @@ It is important to acknowledge the risks involved in participating in such marke
 
 
 
-Update: Link is now responsive and active
+
+
+Update:  06/26/2025 07-43 Anchors updated

@@ -38,4 +38,6 @@ It is important to acknowledge the risks involved in participating in such marke
 
 
 
-Update:  04.07.2025 04:32 Email links
+
+
+Update: link is back online and live

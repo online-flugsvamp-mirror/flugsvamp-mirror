@@ -44,4 +44,6 @@ It is important to acknowledge the risks involved in participating in such marke
 
 
 
-Update:  18.07.2025 14:57:02 url is functioning properly
+
+
+Update:  07/21/2025 21-55-58

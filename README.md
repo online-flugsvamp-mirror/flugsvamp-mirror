@@ -48,4 +48,6 @@ It is important to acknowledge the risks involved in participating in such marke
 
 
 
-Update:  24.07.2025 11:53 Reference fixes
+
+
+Update:  04 August

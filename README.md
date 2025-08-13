@@ -50,4 +50,6 @@ It is important to acknowledge the risks involved in participating in such marke
 
 
 
-Update:  04 August
+
+
+Update:  08/13/2025 url is active

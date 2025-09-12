@@ -56,4 +56,6 @@ It is important to acknowledge the risks involved in participating in such marke
 
 
 
-Update:  Saturday 23 August 2025
+
+
+Update:  12 September 2025

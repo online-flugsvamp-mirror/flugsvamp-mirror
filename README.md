@@ -62,4 +62,6 @@ It is important to acknowledge the risks involved in participating in such marke
 
 
 
-Update:  18 September 2025 Verified all navigation links are working
+
+
+Update:  Wednesday 01 October 2025 url is accessible again
